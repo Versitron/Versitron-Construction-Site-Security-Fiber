@@ -87,7 +87,7 @@ Implement construction fiber, warehouse Ethernet-to-fiber, factory surveillance 
 
 ---
 
-[Check All the Products in this Collection](https://www.versitron.com/collections/fiber-optic-network-switches)
+[Check All the Products in this Collection](https://www.versitron.com/collections/industrial-media-converters)
 
 ---
 
